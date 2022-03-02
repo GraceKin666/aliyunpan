@@ -17,9 +17,9 @@ https://pages.aliyundrive.com/mobile-page/web/beinvited.html?code=1f07922
 
 「《艾尔登法环》免安装v1.02绿色中文版[49GB][百度+天翼+迅雷]」https://www.aliyundrive.com/s/VW4xXWkB573  <br/>
 
-「《艾尔登法环》3DMGAME-ELDEN.RING-PLAZA」https://www.aliyundrive.com/s/35KMF2A9dnD  <br/>
+「《艾尔登法环》3DMGAME-ELDEN.RING-PLAZA」https://www.aliyundrive.com/s/35KMF2A9dnD  
 
-「王牌对王牌6季全」https://www.aliyundrive.com/s/hN6S4yAFebs  <br/>
+「王牌对王牌6季全」https://www.aliyundrive.com/s/hN6S4yAFebs  
 
 「海贼王+剧场」https://www.aliyundrive.com/s/54piMwbo4ud
 
@@ -27,7 +27,7 @@ https://pages.aliyundrive.com/mobile-page/web/beinvited.html?code=1f07922
 
 「[9.8]蓝色星球4K.Blue.Planet.II英文 [4K]」https://www.aliyundrive.com/s/D68FakPTKSE
 
-「[9.8]我们的星球.Our.Plan...019.NETFLIX.HEVC.2160P  [4K]」https://www.aliyundrive.com/s/3jE3eg6A9sw
+「[9.8]我们的星球.NETFLIX.HEVC.2160P  [4K]」https://www.aliyundrive.com/s/3jE3eg6A9sw
 
 「[9.7]请回答1988  [4K]」https://www.aliyundrive.com/s/xKreXnAmvU5
 
@@ -49,7 +49,7 @@ https://pages.aliyundrive.com/mobile-page/web/beinvited.html?code=1f07922
 
 「[9.7]新西游记4 韩国综艺  [1080P]」https://www.aliyundrive.com/s/r2E1TWhUoTb
 
-「[9.7]《七个世界,一个星球... Planet  [1080P]」https://www.aliyundrive.com/s/MAEGGn5uvq1
+「[9.7]《七个世界,一个星球》  [1080P]」https://www.aliyundrive.com/s/MAEGGn5uvq1
 
 「[9.9]是，大臣1-3季+SP  [720P]」https://www.aliyundrive.com/s/St6HdDWQSY9
 
